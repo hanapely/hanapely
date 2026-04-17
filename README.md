@@ -1,5 +1,6 @@
 ![](https://files.catbox.moe/ljoy5z.jpg)
 # still wip ^_^
+- call me haixy or hana.. maybe haikal if u know me since the past
 - cudds / hugs is alright for me
 - block / hide freely but dont report me ok i did nothing wrong
 - i often wont int first but if ure in the same fandom as im in , i would likely to int w u first
