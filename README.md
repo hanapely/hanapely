@@ -3,7 +3,7 @@
 - call me haixy or hana.. maybe haikal if u know me since the past
 - cudds / hugs is alright for me
 - its oke to block or hide me but dont report me ok i did nothing wrong
-- i often wont int first but if ure in the same fandom as im in , i would likely to int w u first
+- i often wont int first bcuz im shy, sorri
 - im usually at the spawn, bakery and soemtimes docks
 - english isnt my first language so yuhh i make a lot of mistakes sorry.
 - i always afk or offtab for some reasons too! so whisp or add me to int
