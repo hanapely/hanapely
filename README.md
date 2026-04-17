@@ -1,5 +1,5 @@
 ![](https://files.catbox.moe/ljoy5z.jpg)
-# go check my rentry nd strawpgae for hugs from me :D
+# still wip ^_^
 - cudds / hugs is alright for me
 - block / hide freely but dont report me ok i did nothing wrong
 - i often wont int first but if ure in the same fandom as im in , i would likely to int w u first
