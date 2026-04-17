@@ -7,5 +7,6 @@
 - im usually at the spawn, bakery and soemtimes docks
 - english isnt my first language so yuhh i make a lot of mistakes sorri.
 - i always afk or offtab for some reasons too! so whisp or add me to int
+- no, no dni bcuz idc.yall can int w me
 # thanks for reading these !! luvyall mwa
 ![](https://autism.crd.co/assets/images/gallery01/eaa23659_original.jpg?v=d6547f5c)
