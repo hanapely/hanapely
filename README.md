@@ -1,5 +1,5 @@
 ![](https://autism.crd.co/assets/images/gallery01/eaa23659_original.jpg?v=d6547f5c)
-# still wip ^_^
+# look out my strawpage gng
 - call me haixy or hana.. maybe haikal if u know me since the past
 - cudds / hugs is alright for me
 - its oke to block or hide me but dont report me ok i did nothing wrong
